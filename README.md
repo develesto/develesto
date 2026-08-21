@@ -10,7 +10,7 @@
 - I love cuddles,kisses and boops so feel free to do so unless otherwise!
 - Darkshippers can interact but keep any mention of the ships only to an extent or not at all.
 - Do not interact if you are very problematic currently,very obsessive,a proshipper,homophobic,racist,etc.
-- Interact with caution if you are a 15 or below or 25 and above,or of you are a Ivan (Bad Things) or Broken Spawn kinnie. (this depends on what you relate to of these characters)
+- Interact with caution if you are 15 or below or 25 and above,or of you are a Ivan (Bad Things) or Broken Spawn kinnie. (this depends on what you relate to of these characters)
 ## I'm in MANY fandoms such as listed!
 - Bad Things
 - Percy Jackson & the Olympians 
