@@ -2,7 +2,7 @@
 - Seventeen years old. (born 2009,February 13th)
 - Pronouns can by any except it/its.
 - THE Andrew (Bad Things) kinnie.
-- Pansexual,but with more of a attraction to men.
+- Pansexual.
 - I don't have Discord,Tiktok,etc,by choice.
 - I have really bad anxiety.I'm akward,and bad with words in certain situations.
 - I'm a very nice,understanding and calm person but don't take that to your advantage.
