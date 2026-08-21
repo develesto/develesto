@@ -1,7 +1,7 @@
 ## INFO ABT ME
 - Seventeen years old. (born 2009,February 13th)
 - Pronouns can by any except it/its.
-- Andrew (Bad Things) and Noob (Forsaken version) kinnie.
+- THE Andrew (Bad Things) kinnie.
 - Pansexual,but with more of a attraction to men.
 - I don't have Discord,Tiktok,etc,by choice.
 - I have really bad anxiety.I'm akward,and bad with words in certain situations.
