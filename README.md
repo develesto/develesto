@@ -10,7 +10,7 @@
 - Darkshippers can interact but keep any mention of the ships only to an extent or not at all.
 - Do not interact if you are very problematic currently,very obsessive,a proshipper,homophobic,racist,etc.
 - Interact with caution if you are a Ivan (Bad Things) or Broken Spawn kinnie. (this depends on what you relate to of these characters)
-## I'm in MANY fandoms such as listed (ordered by how much I'm in these fandoms)
+## I'm in MANY fandoms such as listed!
 - Bad Things
 - Percy Jackson & the Olympians 
 - Die of Death and Evade
